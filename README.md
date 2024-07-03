@@ -1,1 +1,1 @@
-# Amazon
+The data reveals a substantial demand for T-shirts, with M-Size being the most sought-after among our customers. This insight is crucial for refining our inventory strategy to align with consumer preferences.
